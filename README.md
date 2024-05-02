@@ -12,4 +12,4 @@ Meu nome é Anão Rebaixado
 
 @AnaoRebaixado013
 
-![](https://tenor.com/pt-BR/view/you-are-my-sunshine-lebron-james-gif-15065793840846805566)
+![](https://media1.tenor.com/m/0RRzrR7xGj4AAAAd/you-are-my-sunshine-lebron-james.gif)
